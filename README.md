@@ -1,5 +1,7 @@
 ┌─────────────────────────•✧•─────────────────────────┐ 
+
 ˚₊· ➳❥  Hi, I’m Hamdi! 
+
 ➺ 👀 I’m interested in community initiatives and the role tech can play in enhancing them!
 ➺ 🌱 I’m currently learning the foundations of coding...
 ➺ ⚡ Fun fact: I'm a huge nerd when it comes to fragrances!! 
